@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HonzaRuzicka Honza Růžička
+- 👋 Hi, I’m @HonzaRuzicka aka Honza Růžička
 - 👀 I’m interested in everything about computers, servers, computer network management (that's my job) and electronics, 3D printing, Lego (I'd like that a lot), smart home (I swear I'll finish it at home one day)
 - 🌱 I’m currently learning everything I've learned up to now.
 - 💞️ I’m looking to collaborate on ... I prefer to be alone.
